@@ -1,1 +1,1 @@
-# Kuttin Ground Spirit, LLC understands the foundational thinking behind starting or expanding a business. This free Small Business Development Packet (SBDP) has been designed to help formalize scattered concept thoughts into strategic action steps. Upon completion of the Small Business Development Packet (SBDP), your idea will be clarified and effectively presentable for feasibility assessment and investments.
+# Free Small Business Development Packet
